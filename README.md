@@ -1,1 +1,1 @@
-# Project1
+# Beginning of the Journey into the CodeVerse
